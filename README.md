@@ -1,0 +1,2 @@
+# premium-sgraffito-plaster-001-sgraffito-plaster-layer-carvin
+Sgraffito artists know the struggle: tracking multiple plaster layers, carving sequences, and design iterations across complex projects without losing your vision. The Sgraffito Plaster Layer Carving Planner eliminates confusion and keeps every layer perfectly organized.  This Notion template gives you a visual, organized system for planning multi-
